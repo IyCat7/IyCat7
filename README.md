@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @IyCat7
+- 👀 I’m interested in csgo
